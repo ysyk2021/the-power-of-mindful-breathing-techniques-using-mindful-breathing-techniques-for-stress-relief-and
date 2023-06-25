@@ -1,5 +1,4 @@
-Chapter 6: Enhancing Mental Health: Overcoming Negative Thought Patterns with Mindful Breathing
-===============================================================================================
+# Overcoming Negative Thought Patterns with Mindful Breathing
 
 Negative thought patterns can have a significant impact on mental health and wellbeing. However, mindful breathing can be an effective tool for overcoming negative thought patterns and promoting greater emotional regulation. In this chapter, we will explore the connection between negative thought patterns and mental health, techniques for using mindful breathing to overcome negative thought patterns, and strategies for enhancing mental health through regular practice.
 

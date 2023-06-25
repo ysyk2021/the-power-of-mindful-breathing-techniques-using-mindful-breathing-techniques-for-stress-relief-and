@@ -1,5 +1,4 @@
-Chapter 8: Mindful Breathing and Relationships: Techniques for Using Mindful Breathing to Improve Communication and Connection
-==============================================================================================================================
+# Techniques for Using Mindful Breathing to Improve Communication and Connection
 
 Mindful breathing can be a valuable tool for improving communication and connection within relationships. By promoting active listening, non-judgmental speaking, and joint mindfulness practices, individuals can deepen their understanding of one another and build stronger, more resilient relationships. In this chapter, we will explore techniques for using mindful breathing to improve communication and connection within relationships.
 

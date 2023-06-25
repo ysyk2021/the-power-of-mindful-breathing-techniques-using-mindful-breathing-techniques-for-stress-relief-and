@@ -1,5 +1,4 @@
-Chapter 7: Mindful Breathing in Daily Life: Using Mindful Breathing to Enhance Performance and Productivity
-===========================================================================================================
+# Using Mindful Breathing to Enhance Performance and Productivity
 
 Mindful breathing techniques can not only promote relaxation and reduce stress, but they can also enhance performance and productivity. In this chapter, we will explore strategies for using mindful breathing to enhance performance and productivity, including techniques for promoting greater focus and concentration.
 

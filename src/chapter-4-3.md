@@ -1,5 +1,4 @@
-Chapter 2: Common Breathing Patterns and Their Effects: Overcoming Habitual Breathing Patterns
-==============================================================================================
+# Overcoming Habitual Breathing Patterns
 
 Habitual breathing patterns can have a significant impact on physical and mental health, including feelings of stress and anxiety. In this chapter, we will explore strategies for overcoming habitual breathing patterns, including techniques for cultivating awareness and using mindful breathing to regulate responses to stress.
 

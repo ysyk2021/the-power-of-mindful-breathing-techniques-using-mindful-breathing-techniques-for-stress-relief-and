@@ -1,5 +1,4 @@
-Chapter 8: Mindful Breathing and Relationships: Overcoming Relationship Stressors with Mindful Breathing
-========================================================================================================
+# Overcoming Relationship Stressors with Mindful Breathing
 
 Relationships can be a significant source of stress and anxiety, but mindful breathing can be a valuable tool for overcoming relationship stressors. In this chapter, we will explore the role of mindful breathing in promoting healthy relationships, techniques for using mindful breathing to reduce relationship stress, and strategies for incorporating mindful breathing into daily interactions with others.
 

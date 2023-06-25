@@ -1,4 +1,4 @@
-Introduction: Overview of the Book and its Purpose
+Overview of the Book and its Purpose
 ==================================================
 
 Mindful breathing techniques have been used for centuries as a way to reduce stress, promote relaxation, and improve overall health and wellbeing. In this book, we will explore the power of mindful breathing techniques and how they can be used for stress relief and better health.

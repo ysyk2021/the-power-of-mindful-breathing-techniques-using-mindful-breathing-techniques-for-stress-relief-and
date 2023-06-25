@@ -1,5 +1,4 @@
-Chapter 1: What is Mindful Breathing?: Definition and Characteristics of Mindful Breathing
-==========================================================================================
+# Definition and Characteristics of Mindful Breathing
 
 Mindful breathing is a technique that involves focusing on the breath in a non-judgmental way to cultivate mindfulness and promote relaxation and stress relief. In this chapter, we will explore the definition and characteristics of mindful breathing.
 

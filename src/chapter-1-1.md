@@ -1,4 +1,4 @@
-Introduction: Definition of Mindfulness and its Relationship to Breathing
+Definition of Mindfulness and its Relationship to Breathing
 =========================================================================
 
 Mindfulness is a state of awareness in which individuals focus on the present moment, paying attention to their thoughts, feelings, and physical sensations without judgment. Mindful breathing is a technique that can be used to cultivate mindfulness and promote relaxation and stress relief.

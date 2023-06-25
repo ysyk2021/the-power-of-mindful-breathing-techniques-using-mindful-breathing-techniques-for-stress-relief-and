@@ -1,5 +1,4 @@
-Chapter 5: Improving Physical Health: The Impact of Mindful Breathing on Physical Health
-========================================================================================
+# The Impact of Mindful Breathing on Physical Health
 
 Mindful breathing techniques not only have a positive impact on mental health but can also improve physical health. In this chapter, we will explore the impact of mindful breathing on physical health.
 
