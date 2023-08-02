@@ -1,4 +1,4 @@
-Chapter 6: Overcoming Negative Thought Patterns with Mindful Breathing
+Overcoming Negative Thought Patterns with Mindful Breathing
 ======================================================================
 
 In this chapter, we will explore how mindful breathing can be used as a powerful tool for overcoming negative thought patterns. By integrating mindful breathing techniques into our daily lives, we can cultivate awareness, interrupt negative thinking, and develop a more positive and balanced mindset.

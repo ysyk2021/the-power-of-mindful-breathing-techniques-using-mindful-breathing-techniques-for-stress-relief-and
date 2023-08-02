@@ -1,4 +1,4 @@
-Chapter 6: Incorporating Mindful Breathing into Daily Life
+Incorporating Mindful Breathing into Daily Life
 ==========================================================
 
 In this chapter, we will explore practical ways to incorporate mindful breathing into your daily life. By integrating these techniques into your routines and activities, you can experience the transformative power of conscious breathing for stress relief, enhanced well-being, and better health.

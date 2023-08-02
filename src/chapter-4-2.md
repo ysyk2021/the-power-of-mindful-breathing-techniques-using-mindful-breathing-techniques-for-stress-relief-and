@@ -1,4 +1,4 @@
-Chapter 5: The Negative Impact of Shallow or Irregular Breathing on Stress Levels
+The Negative Impact of Shallow or Irregular Breathing on Stress Levels
 =================================================================================
 
 In this chapter, we will explore the detrimental effects of shallow or irregular breathing on stress levels. Understanding how these breathing patterns contribute to stress will inspire you to prioritize mindful breathing techniques for stress relief and overall well-being.

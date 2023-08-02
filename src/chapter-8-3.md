@@ -1,4 +1,4 @@
-Chapter 9: Enhancing Overall Physical Well-Being through Mindful Breathing
+Enhancing Overall Physical Well-Being through Mindful Breathing
 ==========================================================================
 
 In this chapter, we will explore how mindful breathing techniques can be used to enhance overall physical well-being. By incorporating these practices into our daily lives, we can improve our physical health, increase vitality, and promote a sense of balance and harmony within our bodies.

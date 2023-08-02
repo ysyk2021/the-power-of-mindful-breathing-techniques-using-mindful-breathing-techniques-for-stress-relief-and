@@ -1,4 +1,4 @@
-Chapter 7: Strategies for Developing a Mindful Breathing Practice
+Strategies for Developing a Mindful Breathing Practice
 =================================================================
 
 Developing a consistent mindful breathing practice is key to harnessing its transformative power for stress relief and better health. In this chapter, we will explore effective strategies that can help you establish and maintain a regular mindful breathing routine. By applying these strategies, you can cultivate a deeper sense of calm, clarity, and well-being in your daily life.

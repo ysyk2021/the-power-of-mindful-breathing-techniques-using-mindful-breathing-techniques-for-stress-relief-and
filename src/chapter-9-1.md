@@ -1,4 +1,4 @@
-Chapter 4: The Role of Mindful Breathing in Promoting Mental Health
+The Role of Mindful Breathing in Promoting Mental Health
 ===================================================================
 
 In this chapter, we will explore the vital role that mindful breathing plays in promoting mental health. Mindful breathing techniques offer a variety of benefits that can enhance emotional well-being, alleviate symptoms of mental health conditions, and foster overall mental resilience.

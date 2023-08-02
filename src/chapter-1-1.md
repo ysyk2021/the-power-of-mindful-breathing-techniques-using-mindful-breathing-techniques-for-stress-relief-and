@@ -1,4 +1,4 @@
-Chapter 2: Definition of Mindfulness and Its Relationship to Breathing
+Definition of Mindfulness and Its Relationship to Breathing
 ======================================================================
 
 In this chapter, we will explore the concept of mindfulness and how it relates to the practice of mindful breathing. Understanding the essence of mindfulness is crucial for harnessing the full power of breathing techniques in promoting stress relief and better health.

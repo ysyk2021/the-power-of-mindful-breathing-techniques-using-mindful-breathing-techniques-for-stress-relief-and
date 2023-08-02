@@ -1,4 +1,4 @@
-Chapter 7: The Impact of Mindful Breathing on Physical Health
+The Impact of Mindful Breathing on Physical Health
 =============================================================
 
 In this chapter, we will explore the profound impact that mindful breathing techniques can have on our physical health. By understanding and harnessing the power of our breath, we can unlock a multitude of benefits that contribute to our overall well-being. Let's dive into the ways in which mindful breathing positively influences our physical health.

@@ -1,4 +1,4 @@
-Chapter 1: Overview of the Book and Its Purpose
+Overview of the Book and Its Purpose
 ===============================================
 
 Introduction

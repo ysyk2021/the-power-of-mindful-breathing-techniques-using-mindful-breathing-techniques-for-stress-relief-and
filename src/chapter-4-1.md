@@ -1,4 +1,4 @@
-Chapter 3: Identifying Common Breathing Patterns and Their Effects on Physical and Mental Health
+Identifying Common Breathing Patterns and Their Effects on Physical and Mental Health
 ================================================================================================
 
 In this chapter, we will explore common breathing patterns and their impact on physical and mental health. Understanding these patterns will allow you to recognize any unhealthy breathing habits you may have developed and empower you to harness the power of mindful breathing techniques for stress relief and better overall health.

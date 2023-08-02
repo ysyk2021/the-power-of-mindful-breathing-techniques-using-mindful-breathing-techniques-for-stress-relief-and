@@ -1,4 +1,4 @@
-Chapter 4: Overcoming Habitual Breathing Patterns
+Overcoming Habitual Breathing Patterns
 =================================================
 
 In this chapter, we will explore strategies for overcoming habitual breathing patterns and cultivating healthier ways of breathing. By understanding the factors that contribute to these patterns and implementing mindful breathing techniques, you can break free from unhealthy habits and experience the transformative power of conscious breathing.

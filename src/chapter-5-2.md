@@ -1,4 +1,4 @@
-Chapter 5: Techniques for Enhancing Breath Awareness and Control
+Techniques for Enhancing Breath Awareness and Control
 ================================================================
 
 In this chapter, we will explore various techniques that can help you deepen your breath awareness and cultivate greater control over your breathing. These techniques are valuable tools for harnessing the full potential of mindful breathing and experiencing the benefits it offers for stress relief and overall well-being.
