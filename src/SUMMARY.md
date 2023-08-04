@@ -2,7 +2,6 @@
 
 - [Introduction](README.md)
   - [Definition of mindfulness and its relationship to breathing](chapter-1-1.md)
-  - [Overview of the book and its purpose](chapter-1-2.md)
   - [The benefits of mindful breathing techniques for stress relief and better health](chapter-1-3.md)
 - [Part 1: Understanding Mindful Breathing](chapter-2.md)
 - [Chapter 1: What is Mindful Breathing?](chapter-3.md)
