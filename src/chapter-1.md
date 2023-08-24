@@ -1,5 +1,3 @@
-Introduction
-============
 
 Mindfulness is a powerful practice that involves cultivating greater awareness of physical sensations, thoughts, and emotions. One way to cultivate mindfulness is through mindful breathing techniques, which involve focusing on the breath and deepening awareness of physical sensations and emotions. In this book, we will explore the power of mindful breathing techniques for stress relief and better health.
 

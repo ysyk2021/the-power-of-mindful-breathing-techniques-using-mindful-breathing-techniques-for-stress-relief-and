@@ -1,5 +1,3 @@
-Part 3: Applying Mindful Breathing Techniques
-=============================================
 
 In this section of the book, we will explore how to apply mindful breathing techniques in various aspects of daily life. By incorporating mindful breathing into our daily routines, we can reduce stress and anxiety, improve mental and physical health, and promote overall wellbeing.
 

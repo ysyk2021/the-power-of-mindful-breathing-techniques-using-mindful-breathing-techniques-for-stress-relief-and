@@ -1,5 +1,3 @@
-Techniques for Using Mindful Breathing to Improve Emotional Regulation and Mood
-==========================================================================================
 
 In this chapter, we will explore specific techniques for using mindful breathing to improve emotional regulation and enhance mood. These techniques provide practical tools that can be incorporated into daily life to cultivate greater emotional well-being and resilience.
 

@@ -1,5 +1,3 @@
-Chapter 6: Enhancing Mental Health
-==================================
 
 Mindful breathing can be a powerful tool for promoting mental health. By promoting relaxation, reducing stress and anxiety, and improving emotional regulation, mindful breathing can help individuals cope with challenges and improve their overall wellbeing. In this chapter, we will explore the role of mindful breathing in promoting mental health, techniques for using mindful breathing to improve emotional regulation and mood, and strategies for overcoming negative thought patterns with mindful breathing.
 

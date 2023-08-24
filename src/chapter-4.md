@@ -1,5 +1,3 @@
-Chapter 2: Common Breathing Patterns and Their Effects
-======================================================
 
 Breathing patterns can have a significant impact on physical and mental health. In this chapter, we will explore common breathing patterns and their effects on stress levels, emotional regulation, and overall wellbeing. We will also discuss strategies for overcoming habitual breathing patterns that may be contributing to feelings of stress and anxiety.
 

@@ -1,5 +1,3 @@
-Chapter 3: Techniques for Cultivating Mindful Breathing
-=======================================================
 
 Cultivating mindful breathing is an important practice for promoting relaxation, reducing stress and anxiety, and improving overall wellbeing. In this chapter, we will explore strategies for developing a mindful breathing practice, techniques for enhancing breath awareness and control, and strategies for incorporating mindful breathing into daily life.
 

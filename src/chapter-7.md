@@ -1,5 +1,3 @@
-Chapter 4: Reducing Stress and Anxiety
-======================================
 
 Stress and anxiety can have a significant impact on physical and mental health, but mindful breathing can be an effective tool for managing these feelings. In this chapter, we will explore the positive impact of mindful breathing on stress and anxiety, techniques for using mindful breathing to manage stress in real-time, and strategies for building resilience through mindful breathing.
 

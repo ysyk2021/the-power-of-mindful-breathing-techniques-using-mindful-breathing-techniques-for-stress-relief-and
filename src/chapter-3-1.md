@@ -1,5 +1,3 @@
-Definition and Characteristics of Mindful Breathing
-==============================================================
 
 In this chapter, we will explore the definition and characteristics of mindful breathing. Understanding what mindful breathing entails is essential for developing a strong foundation in this transformative practice.
 

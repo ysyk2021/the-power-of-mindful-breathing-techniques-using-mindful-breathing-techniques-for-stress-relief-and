@@ -1,5 +1,3 @@
-Part 1: Understanding Mindful Breathing
-=======================================
 
 Mindful breathing is a powerful tool for reducing stress and promoting better health. In this section, we will explore the fundamentals of mindful breathing, including its definition, characteristics, and benefits.
 

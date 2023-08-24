@@ -1,5 +1,3 @@
-Part 2: Benefits of Mindful Breathing
-=====================================
 
 Mindful breathing can have numerous benefits for physical and mental health. In this section, we will explore the various benefits of mindful breathing, including reducing stress and anxiety, enhancing emotional regulation, improving physical health, and promoting better relationships.
 

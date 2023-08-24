@@ -1,5 +1,3 @@
-Chapter 1: What is Mindful Breathing?
-=====================================
 
 Mindful breathing is a practice that involves focusing on the breath and cultivating greater awareness of physical sensations and emotions. In this chapter, we will explore the definition and characteristics of mindful breathing, the science behind the connection between breathing and mindfulness, and the impact of mindful breathing on stress and overall health.
 
@@ -33,5 +31,4 @@ Conclusion
 ----------
 
 In conclusion, mindful breathing is a practice that involves focusing on the breath and cultivating greater awareness of physical sensations and emotions. By engaging the parasympathetic nervous system and promoting relaxation, mindful breathing can reduce feelings of stress and anxiety, improve emotional regulation, and enhance overall wellbeing. Through regular practice and persistence, individuals can enjoy the many benefits of mindful breathing and unlock its full potential for better health and happiness.
-
 

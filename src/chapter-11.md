@@ -1,5 +1,3 @@
-Chapter 7: Mindful Breathing in Daily Life
-==========================================
 
 Mindful breathing can be incorporated into daily life to promote relaxation, reduce stress and anxiety, and improve overall wellbeing. In this chapter, we will explore strategies for incorporating mindful breathing into daily routines, using mindful breathing to enhance performance and productivity, and navigating stressful situations with mindful breathing.
 
