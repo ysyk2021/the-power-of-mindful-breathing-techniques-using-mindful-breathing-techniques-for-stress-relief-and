@@ -8,3 +8,7 @@ Throughout the book, readers will learn different types of mindful breathing exe
 Mindful breathing is a simple yet transformative technique that can enhance our physical abilities, boost our immune system, reduce chronic pain, and improve our overall quality of life. "The Power of Mindful Breathing Techniques" provides practical guidance and insights to help readers cultivate a greater sense of calm, focus, and resilience.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
