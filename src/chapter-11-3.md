@@ -1,5 +1,4 @@
-Chapter: Navigating Stressful Situations with Mindful Breathing
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore how mindful breathing techniques can be used as a powerful tool for navigating stressful situations. Mindful breathing, with its ability to cultivate present-moment awareness and promote relaxation, can help individuals find calmness and resilience when facing various forms of stress.
 

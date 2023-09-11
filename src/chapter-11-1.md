@@ -1,5 +1,4 @@
-Chapter: Strategies for Incorporating Mindful Breathing into Daily Routines
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore effective strategies for incorporating mindful breathing techniques into daily routines. Mindful breathing, a practice that cultivates present-moment awareness through focused breathing, can be integrated seamlessly into various aspects of our lives, promoting stress relief and better overall health.
 
